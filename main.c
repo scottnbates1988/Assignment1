@@ -1,2 +1,0 @@
-safa
-xdtcfyghugvftdthmklmpko
